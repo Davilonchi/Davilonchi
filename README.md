@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on custom minecraft launcher<br>👯 I’m looking to collaborate on things i find interesting<br>🌱 I’m currently learning at school about game making<br>
+👯 I’m looking to collaborate on things i find interesting<br>🌱 I’m currently learning at school about game making<br>
 
 
 ## 🌐 Socials:
